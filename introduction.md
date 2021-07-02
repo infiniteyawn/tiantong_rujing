@@ -42,14 +42,45 @@ Jiading Jianjing Zen Master.
 
 Advocate the way of the foot temple in the skychild. (lol)
 
+
+
 懼洞宗玄學或為語言勝。以惡拳痛棒。陶冶學者。肆口縱談。擺落枝葉。無華滋旨味。
+
+懼洞? taking as a model the dao school may be because of the success of language
+
+Pain with bad fists. ?
+
+to educate the scholar. 
+
+The unrestrained mouth talks freely. 
+
+moving to and fro leave behind the branche and leaf. ?
+
+No flower grows with the aim to be fragrant. 
 
 
 如蒼松架壑風雨盤空。曹洞正宗為之一變。所謂懼洞宗玄學或為語言勝。等實得淨公意。
 
+Such as ancient Pines frame the mountainsides, the elements 盤 space/nothingness. 
+
+The authenticity of Caodong is a change. ?
+
+So-called fear, Dongzong? ...  may be the victory of language.
+
+
+
 
 抓著其癢處。永平正法眼藏中。有言云。有一般野猫兒。言洞山高祖有偏正五位。
 
+?
+
+always calm, upright, the discerning eye is the core of buddhist scripture
+
+there is something to say,
+
+?
+
+?
 
 只須知洞山高祖有正法眼藏。是亦會淨公意。懼為語言勝也。但所謂曹洞正宗。
 
