@@ -19,6 +19,20 @@ xx However, not promising and yet not speechless. [有為有守 - ]
 
 洞山五位臨濟三玄。共是垂慈心。聲止啼黃葉。若就語中生實解者。求馬於唐肆待兔於枯株也。
 
+DongShan Mountain (note, dong is cave/hole/zero)
+Linji, you may know.
+
+DongShan Mountain ;五位; Linji Sanxuan. 
+  
+xxThere is always kindness. 
+  
+xxThe sound stops crying yellow leaves.
+
+xxIf justThe real interpreter in the language. 
+
+xxSeeking horses in Tang Si and rabbits in dead plants.
+
+
 
 璨無文之無文印第五卷天地雪屋韶禪師塔銘序中云。嘉定間淨禪師。倡足菴之道于天童。
 
@@ -81,6 +95,7 @@ xx However, not promising and yet not speechless. [有為有守 - ]
 
 [Raw Google translate, not aligned with rows above]
 [0133b27] 
+ Husbands and Buddhas are practical and logical. The original language phase. Ran BuddhismIn the middle is the thing. It is neither promising nor speechless. 
 Cave Mountain FiveLinji Sanxuan. There is always kindness. The sound stops crying yellow leaves.
 If justThe real interpreter in the language. Seeking horses in Tang Si and rabbits in dead plants.
 Can Wu Wen Zhi Wu Wen Seal Volume 5 Tian Di Xue Wu Shao Zen Master TowerMing Xu Zhongyun. 
