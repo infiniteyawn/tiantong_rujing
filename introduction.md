@@ -8,13 +8,13 @@ Preface to the Records of Tiantong
 
 夫佛祖道實際理地。本離言語相。然佛事門中為物垂慈。則雖非有為又非無語。
 
-The Buddhas dao is practical reality in its essence. (opinion)
+The Buddhas dao is essentially practical reality. (opinion)
   
-Its root is apart from words and appearances. [not speak of appearances] 
+inherently/originally apart from speaking of appearances (the appearances of language/words )
 
 xx Thus, the matter of Buddha's ...門中 ... to serve as an object for handing down compassion 
   
-xx However, It is neither promising nor speechless. [有為有守 - ]
+xx However, not promising and yet not speechless. [有為有守 - ]
 
 
 洞山五位臨濟三玄。共是垂慈心。聲止啼黃葉。若就語中生實解者。求馬於唐肆待兔於枯株也。
