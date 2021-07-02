@@ -1,11 +1,16 @@
 天童遺落錄序
+
 Preface to the Records of Tiantong
 
 [rows made for formatting, not done logically]
+
 [0133b27] 
+
 夫佛祖道實際理地。本離言語相。然佛事門中為物垂慈。則雖非有為又非無語。
-Husbands and Buddhas are practical and logical. The original language phase. 
-Ran BuddhismIn the middle is the thing. It is neither promising nor speechless.
+
+The Buddhas dao is practical reality in its essence. (opinion)
+
+xx The original language phase. Ran BuddhismIn the middle is the thing. It is neither promising nor speechless.
 
 
 洞山五位臨濟三玄。共是垂慈心。聲止啼黃葉。若就語中生實解者。求馬於唐肆待兔於枯株也。
