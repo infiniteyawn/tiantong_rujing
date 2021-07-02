@@ -84,12 +84,27 @@ there is something to say,
 
 只須知洞山高祖有正法眼藏。是亦會淨公意。懼為語言勝也。但所謂曹洞正宗。
 
+only, it must be kept in mind dongshan...
+  
+ ?
+ 
+ fear because language success.
+ 
+ but so-called plaintiff-defendant genuine
 
 為之一變者不爾。其似變者唯語言跡。而如正宗。冥合洞山本旨。莫過於淨公。
 
+because of a multitude of change, this is not thus/you
+  
+it appears change only language result
+  
+ 
 
 譬如言能學柳下惠者不師其跡也。淨公有六會語錄二卷。所謂建康府清涼。台州瑞巖。臨安府淨慈。
 
+for example words can teach without a trace of a teacher.
+  
+...
 
 明州瑞巖。再住淨慈。寧波府天童之六會。而侍者文素妙宗唯敬如玉智湖祖日等所編次。
 
