@@ -36,6 +36,11 @@ xxSeeking horses in Tang Si and rabbits in dead plants.
 
 璨無文之無文印第五卷天地雪屋韶禪師塔銘序中云。嘉定間淨禪師。倡足菴之道于天童。
 
+Can Wu Wen Zhi Wu Wen Seal Volume 5 Tian Di Xue Wu Shao Zen Master TowerMing Xu Zhongyun. 
+
+Jiading Jianjing Zen Master. 
+
+Advocate the way of the foot temple in the skychild. (lol)
 
 懼洞宗玄學或為語言勝。以惡拳痛棒。陶冶學者。肆口縱談。擺落枝葉。無華滋旨味。
 
