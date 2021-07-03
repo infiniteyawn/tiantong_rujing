@@ -1,17 +1,22 @@
 [0134a28] (上堂云)。
 Version 1:
 
-Alert, quick, and at all times [!]
-  
+
+
+
+Alert & quick, and at all times [!] 
+
 In darkness, you must not let the moon follow the flow of the river.
 
-Experience passing trough, and in all respects [!]
+Experience experience, and in all respects [!]
 
 When drifting along, you must not let the rain go chasing the clounds.
 
 When all is said and done, regard life as insignificant 
 
 The sage, within no-self, is inexhaustible 
+
+
 
 
 (speaking a long while / speaking for eternity:) 
@@ -21,12 +26,18 @@ All over the ten directions is mind
 Not-present at every point, it can still be tiny and insignificant .
 
 
-Meanwhile:
+
+
+
+[Meanwhile:]
 
 The head of the NanYue (Mt. Heng) Mountain range slices up the clouds,
 
 And on the peak of tiantai mountain, the pitter-patter of rain seeps down.
 
+
+
+==========================================================================
 
 [0134a28] 上堂云。
 
