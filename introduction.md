@@ -8,7 +8,7 @@ Preface to the Records of Tiantong
 
 夫佛祖道實際理地本離言語相。然佛事門中為物垂慈。則雖非有為又非無語。
 
-The Buddhas dao is essentially practical reality. (opinion)
+The Buddhas dao is essentially practical reality.
   
 inherently/originally apart from speaking of appearances (the appearances of language/words )
 
@@ -27,7 +27,7 @@ DongShan ZM [洞山良价]
 
 Linji, you may know.
 
-JiGong 1130-1209 ZM aka Daoji, monk jidian, (li xiuyuan by birth) = https://zh.wikipedia.org/wiki/%E6%B5%8E%E5%85%AC
+RuJing (淨公 throughout) 
 
 #Places referenced:
 
@@ -100,7 +100,7 @@ The authenticity of Caodong is a change. ?
 
 "So-called the fear of the dong school of thought may be because of the superior use of language"
 
-It is the same truth of JingGong's idea
+It is the same truth of Jing's idea
 
 
 
@@ -122,7 +122,7 @@ dongshan ancestry is fifth person...
 
 only, it must be kept in mind dongshan lineage has dhamma eye
   
-this is also equivelant to quotation of JingGong's idea ...
+this is also equivelant to quotation of Jing's idea ...
  
  fear because language success also.
  
@@ -130,17 +130,17 @@ this is also equivelant to quotation of JingGong's idea ...
  
  
 
-但所謂[曹洞]正宗。為之一變者不爾。其似變者唯語言跡。而如正宗。冥合[洞山]本旨。莫過於!淨公。
+但所謂[曹洞]正宗。為之一變者不爾。其似變者唯語言跡。而如正宗。冥合[洞山]本旨。莫過於淨公。
 
 But so-called CaoDong orthodoxy, because of a multitude of change, is not so.
   
 it appears change only language result
   
-contrasting the ru orthodox school?
+contrasting the orthodox school?
 
 Implicitly agreeing with the dongshan original purpose
  
-nothing can surpass jinggong 
+nothing can surpass jing 
  
 
 譬如言能學柳下惠者不師其跡也。
@@ -151,7 +151,7 @@ for example words can teach without a trace of a teacher.
 
 !淨公有六會語錄二卷。所謂
 
-JingGong has six quotations in two volumes (?)
+Jing has six quotations in two volumes (?)
 
 so-called: 
 
@@ -169,7 +169,7 @@ taizhou auspicious cliff
 Mingzhou venerable/auspicious cliff
 
 再住淨慈。
-again dwell only compassinate
+again dwell Jing compassinate
 
 寧波府[天童]之六會。
 The sixth meeting of tiantong in ningbo manor
@@ -193,7 +193,7 @@ Lingyin Plateau Spring, YiXiao YanWei wrote a postscript together. ????
 
 淨公 小師 廣宗。以理宗 紹定二年乙丑夏。
 
-JingGong adept Guangzong. 
+Jing little teacher Guangzong. 
 
 Yi Chou Xia in the second year of Emperor Shao Ding.
 
