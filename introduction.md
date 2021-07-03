@@ -4,6 +4,8 @@ Preface to the Records of Tiantong
 
 [0133b27] 
 
+======================================================
+
 夫佛祖道實際理地本離言語相。然佛事門中為物垂慈。則雖非有為又非無語。
 
 The Buddhas dao is essentially practical reality. (opinion)
@@ -14,13 +16,29 @@ xx Thus, the matter of Buddha's gate things are not handed compassion
   
 xx However, not promising and yet not speechless. [有為有守 - ]
 
+=============================================
 
 
+%%%%%%
+
+#Folk:
+
+DongShan ZM [洞山良价]
+
+Linji, you may know.
+
+JiGong 1130-1209 ZM aka Daoji, monk jidian, (li xiuyuan by birth) = https://zh.wikipedia.org/wiki/%E6%B5%8E%E5%85%AC
+
+#Places referenced:
+
+TianTong (mountain, temple)
+
+Lingyin (temple, hangzhou?) = https://zh.wikipedia.org/wiki/%E7%81%B5%E9%9A%90%E5%AF%BA
+
+%%%%%
 
 [洞山]五位[臨濟]三玄。
 
-DongShan Mountain (note, dong is cave/hole/zero) this is ZM dongshan [洞山良价]
-Linji, you may know.
 
 DongShan ;五位; Linji Sanxuan. 
   
@@ -45,13 +63,14 @@ xxSeeking horses in Tang Si and rabbits in dead plants.
 
 璨無文之無文印 第五卷 天地雪屋韶 禪師 塔銘序中 云。
 
-Can Wu Wen Zhi Wu Wen Seal Volume 5 Tian Di Xue Wu Shao Zen Master TowerMing Xu Zhongyun. 
+TsanWuWen's WuWenYin Volume 5 TianDi XueWuShao ZenMaster TaMing XuZhong speaks.
+
 
 嘉定 間 淨禪師。倡足菴之道于[天童]。
 
-JiaDing asked Zen Master Jing.  (jiading may be an emporor)
+Emperor JiaDing asked Zen Master Jing.
 
-introduce the dao of temple from tiantong.
+"Introduce the dao of TianTong temple".
 
 
 懼洞宗玄學或為語言勝。以惡拳痛棒。陶冶學者。肆口縱談。
@@ -64,6 +83,8 @@ to educate the scholar.
 
 The unrestrained mouth talks freely. 
 
+
+
 擺落枝葉。無華滋旨味。如蒼松架壑風雨盤空。
 
 moving to and fro leave behind the branche and leaf. ?
@@ -72,13 +93,16 @@ No flower grows with the aim to be fragrant.
 
 Such as ancient Pines frame the mountainsides, the elements 盤 space/nothingness. 
 
+
 曹洞正宗為之一變。所謂懼洞宗玄學或為語言勝。等實得!淨公意。
 
 The authenticity of Caodong is a change. ?
 
-So-called fear, Dongzong? ...  may be the victory of language.
+"So-called the fear of the dong school of thought may be because of the superior use of language"
 
 It is the same truth of JingGong's idea
+
+
 
 
 抓著其癢處。永平正法眼藏中。有言云。有一般野猫兒。
@@ -89,15 +113,16 @@ always calm, upright, the discerning eye is the core of buddhist scripture
 
 there is something to say,
 
-There are ordinary wild cats
+There are ordinary wild cat (i hope the anser is "there's an ordinary wildcat kitten")
+
 
 言[洞山]高祖有偏正五位。只須知[洞山]高祖有正法眼藏。是亦會!淨公意。懼為語言勝也。
 
 dongshan ancestry is fifth person...
 
-only, it must be kept in mind dongshan ancestry has ...
+only, it must be kept in mind dongshan lineage has dhamma eye
   
- this is also equivelant to quotation of JingGong's idea ...
+this is also equivelant to quotation of JingGong's idea ...
  
  fear because language success also.
  
@@ -105,15 +130,13 @@ only, it must be kept in mind dongshan ancestry has ...
  
  
 
-但所謂曹洞正宗。為之一變者不爾。其似變者唯語言跡。而如正宗。冥合[洞山]本旨。莫過於!淨公。
+但所謂[曹洞]正宗。為之一變者不爾。其似變者唯語言跡。而如正宗。冥合[洞山]本旨。莫過於!淨公。
 
-but so-called plaintiff-defendant genuine
-
-because of a multitude of change, this is not thus/you
+But so-called CaoDong orthodoxy, because of a multitude of change, is not so.
   
 it appears change only language result
   
-yet/but such as genuine (orthodox school?)
+contrasting the ru orthodox school?
 
 Implicitly agreeing with the dongshan original purpose
  
@@ -124,10 +147,9 @@ nothing can surpass jinggong
 
 for example words can teach without a trace of a teacher.
   
+==========================
+
 !淨公有六會語錄二卷。所謂
-
-
->>>>>
 
 JingGong has six quotations in two volumes (?)
 
@@ -152,8 +174,8 @@ again dwell only compassinate
 寧波府[天童]之六會。
 The sixth meeting of tiantong in ningbo manor
 
-而侍者文素妙宗唯敬如玉智湖祖日等所編次。
-and ???
+而 侍者文素妙宗唯敬如玉智湖祖日等所 編次。
+and ??? order of arrangment
 
 ======================================================================
 
@@ -163,10 +185,11 @@ Preface by Tong Bai official Lv Xiao.
 
 ....
 
-靈隱高原泉天衣嘯巖蔚共作跋。
+靈隱高原 泉天 衣嘯 巖蔚 共 作跋。
 
-Lingyin Plateau Spring Tianyi Xiaoyanwei wrote a postscript together.
+Lingyin Plateau Spring, YiXiao YanWei wrote a postscript together. ???? 
 
+...
 
 淨公 小師 廣宗。以理宗 紹定二年乙丑夏。
 
