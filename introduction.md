@@ -2,8 +2,6 @@
 
 Preface to the Records of Tiantong
 
-[rows made for formatting, not done logically]
-
 [0133b27] 
 
 夫佛祖道實際理地本離言語相。然佛事門中為物垂慈。則雖非有為又非無語。
@@ -17,15 +15,26 @@ xx Thus, the matter of Buddha's gate things are not handed compassion
 xx However, not promising and yet not speechless. [有為有守 - ]
 
 
-[洞山]五位[臨濟]三玄。共是垂慈心。聲止啼黃葉。若就語中生實解者。求馬於唐肆待兔於枯株也。
+
+
+[洞山]五位[臨濟]三玄。
 
 DongShan Mountain (note, dong is cave/hole/zero) this is ZM dongshan [洞山良价]
 Linji, you may know.
 
 DongShan ;五位; Linji Sanxuan. 
   
-xxThere is always kindness. 
+
+
+
+共是垂慈心。
+
+?There is always kindness. 
   
+
+
+聲止啼黃葉。若就語中生實解者。求馬於唐肆待兔於枯株也。
+
 xxThe sound stops crying yellow leaves.
 
 xxIf justThe real interpreter in the language. 
@@ -34,33 +43,36 @@ xxSeeking horses in Tang Si and rabbits in dead plants.
 
 
 
-璨無文之無文印第五卷天地雪屋韶禪師塔銘序中云。嘉定間淨禪師。倡足菴之道于[天童]。
+璨無文之無文印 第五卷 天地雪屋韶 禪師 塔銘序中 云。
 
 Can Wu Wen Zhi Wu Wen Seal Volume 5 Tian Di Xue Wu Shao Zen Master TowerMing Xu Zhongyun. 
 
-Jiading Jianjing Zen Master. 
+嘉定 間 淨禪師。倡足菴之道于[天童]。
 
-Advocate the way of the foot temple tiantong.
+JiaDing asked Zen Master Jing.  (jiading may be an emporor)
+
+introduce the dao of temple from tiantong.
 
 
-懼洞宗玄學或為語言勝。以惡拳痛棒。陶冶學者。肆口縱談。擺落枝葉。無華滋旨味。
+懼洞宗玄學或為語言勝。以惡拳痛棒。陶冶學者。肆口縱談。
 
-懼洞? taking as a model the dao school may be because of the success of language
+something like - "the fear of the dong school of thought may be because of the superior use of language" 
 
-Pain with bad fists. ?
+?
 
 to educate the scholar. 
 
 The unrestrained mouth talks freely. 
 
+擺落枝葉。無華滋旨味。如蒼松架壑風雨盤空。
+
 moving to and fro leave behind the branche and leaf. ?
 
 No flower grows with the aim to be fragrant. 
 
-
-如蒼松架壑風雨盤空。曹洞正宗為之一變。所謂懼洞宗玄學或為語言勝。等實得!淨公意。
-
 Such as ancient Pines frame the mountainsides, the elements 盤 space/nothingness. 
+
+曹洞正宗為之一變。所謂懼洞宗玄學或為語言勝。等實得!淨公意。
 
 The authenticity of Caodong is a change. ?
 
@@ -69,7 +81,7 @@ So-called fear, Dongzong? ...  may be the victory of language.
 It is the same truth of JingGong's idea
 
 
-抓著其癢處。永平正法眼藏中。有言云。有一般野猫兒。言[洞山]高祖有偏正五位。
+抓著其癢處。永平正法眼藏中。有言云。有一般野猫兒。
 
 scratching an itchy place ?!
 
@@ -79,19 +91,23 @@ there is something to say,
 
 There are ordinary wild cats
 
-?
+言[洞山]高祖有偏正五位。只須知[洞山]高祖有正法眼藏。是亦會!淨公意。懼為語言勝也。
 
-只須知[洞山]高祖有正法眼藏。是亦會!淨公意。懼為語言勝也。但所謂曹洞正宗。
+dongshan ancestry is fifth person...
 
-only, it must be kept in mind dongshan...
+only, it must be kept in mind dongshan ancestry has ...
   
- this is also equivelant to JingGong's meaning
+ this is also equivelant to quotation of JingGong's idea ...
  
- fear because language success.
+ fear because language success also.
  
- but so-called plaintiff-defendant genuine
+ 
+ 
+ 
 
-為之一變者不爾。其似變者唯語言跡。而如正宗。冥合[洞山]本旨。莫過於!淨公。
+但所謂曹洞正宗。為之一變者不爾。其似變者唯語言跡。而如正宗。冥合[洞山]本旨。莫過於!淨公。
+
+but so-called plaintiff-defendant genuine
 
 because of a multitude of change, this is not thus/you
   
@@ -104,45 +120,66 @@ Implicitly agreeing with the dongshan original purpose
 nothing can surpass jinggong 
  
 
-譬如言能學柳下惠者不師其跡也。!淨公有六會語錄二卷。所謂建康府清涼。台州瑞巖。臨安府淨慈。
+譬如言能學柳下惠者不師其跡也。
 
 for example words can teach without a trace of a teacher.
   
+!淨公有六會語錄二卷。所謂
+
+
+>>>>>
+
 JingGong has six quotations in two volumes (?)
 
-so-called jiankang manor is refreshing
+so-called: 
 
+建康府清涼 
+jiankang manor is refreshing
+
+台州瑞巖 
 taizhou auspicious cliff
 
+臨安府淨慈。
 [is this a reference to linji and jing?]
-...
 
-{明州}瑞巖。再住淨慈。寧波府[天童]之六會。而侍者文素妙宗唯敬如玉智湖祖日等所編次。
+{明州}瑞巖。
 
 Mingzhou venerable/auspicious cliff
 
+再住淨慈。
 again dwell only compassinate
 
+寧波府[天童]之六會。
 The sixth meeting of tiantong in ningbo manor
 
+而侍者文素妙宗唯敬如玉智湖祖日等所編次。
 and ???
 
 ======================================================================
 
-桐柏吏呂瀟作序。靈隱高原泉天衣嘯巖蔚共作跋。!淨公小師廣宗。以理宗紹定二年乙丑夏。
+桐柏吏呂瀟作序。
 
 Preface by Tong Bai official Lv Xiao.
 
+....
+
+靈隱高原泉天衣嘯巖蔚共作跋。
+
 Lingyin Plateau Spring Tianyi Xiaoyanwei wrote a postscript together.
 
-[Jing Gong] adept, Guangzong. 
+
+淨公 小師 廣宗。以理宗 紹定二年乙丑夏。
+
+JingGong adept Guangzong. 
 
 Yi Chou Xia in the second year of Emperor Shao Ding.
 
 
-所募刻。而永平廣錄第一卷。有[天童]和尚語錄到上堂云。箇是[天童]打[跳-兆+孛]跳。{jump - omen + comet}jump
+所募刻。
 
 ?
+
+而永平廣錄第一卷。有[天童]和尚語錄到上堂云。箇是[天童]打[跳-兆+孛]跳。{jump - omen + comet}jump
 
 The first volume of...
 
@@ -257,44 +294,3 @@ Then the real Houxian collected a few.
 There is no shortage of good things.
 Tianbi monk type ?
 It just happens to be attached.
-
-
-
-
-[Raw Google translate, not aligned with rows above]
-[0133b27] 
- Husbands and Buddhas are practical and logical. The original language phase. Ran BuddhismIn the middle is the thing. It is neither promising nor speechless. 
-Cave Mountain FiveLinji Sanxuan. There is always kindness. The sound stops crying yellow leaves.
-If justThe real interpreter in the language. Seeking horses in Tang Si and rabbits in dead plants.
-Can Wu Wen Zhi Wu Wen Seal Volume 5 Tian Di Xue Wu Shao Zen Master TowerMing Xu Zhongyun. 
-Jiading Jianjing Zen Master. Advocate the way of the foot temple in the skychild.
-Fear of Dongzong metaphysics may win for language. Pain with bad fists. potteryMetallurgical scholar. 
-Talk freely. Lay out branches and leaves. No fancy taste. Such asPines stand gully storm disk space. 
-The authenticity of Caodong is a change. SoThe metaphysics of fear of Dongzong may be the victory of language. 
-Wait for the net public opinion.Scratching its itchy place. Yongping's Dharma is hidden in his eyes. There are words. 
-Have oneLike wild cats. The ancestor of Yandong Mountain has five positives. 
-Just need to knowThe great ancestor of Dongshan had the Dharma Eyes. Yes, it will net public opinion. 
-Be afraid ofLanguage wins. But the so-called Caodong is authentic. Change for oneYou. 
-Those who seem to change only have language traces. And as authentic. Pluto Cave MountainOriginal purpose. 
-There is nothing more than a net public. For example, those who can learn from Liu Xiahui don’tLearn from it.
-Jing Gong has two volumes of Quotations from Liuhui. So-called JiankangThe house is cool. Ruiyan, Taizhou.
-Lin'an Mansion Jingci. Ruiyan, Mingzhou. againLive Jingci. The Sixth Meeting of Tiantong in Ningbo Mansion.
-And the waiter Wen SumiaoZong Weijing, such as Yuzhihu Zuri, etc. Tong Bai Li LuXiao Zuo Xu. 
-Lingyin Plateau Spring Tianyi Xiaoyanwei wrote a postscript together. netPublic elementary school teacher Guangzong.
-Yi Chou Xia in the second year of Emperor Shao Ding. Raisedengraved. And the first volume of Yongping Guanglu. 
-There are quotations from the monk TiantongGo to the cloud. Xie is Tiantong playing [jump-mega+孛] jump. 
-Dancing to the East China Sea Arowana.This is also recorded in the second volume. Gengshen Autumn in the eighth year of Yanbao. 
-(I) in the eastPrince Wu. Thirty-five years from now. And occasionallySee the secret in the Deyun Chamber of Danzhou.
-Fanqing monk Zhenbi RuiyanYuan Gong compiled a volume of quotations from Zen Master Tiantong Rujing.
-But heavenTwenty articles of Tong Shangtang's French are only available. At the end of its volume.
-GaozuYuan monk. The Six People's Fate of the Jing Gong Law Heirs have been passed oncloud. 
-Niji is two years old in Japan. Cixin Chou in mid-February. RuiyanYuan Gongyao sent this record to me. 
-Gai Renzhi two years. GuangzongbuThirteen years later. And the Tiantong recorder in the six sessions. 
-AncestorEdited by the day waiter. Twenty Ruiyan Searches left in its compilationEdited. 
-Those who send yuan to the monk are clearly distinguished. Master of Deyun TempleThe mountain master. 
-The main mirror master of Nanyang Temple. Sheyi Zi map disaster wood. veryIt's kindness can be honored. 
-(Yu) is a test of its end. Make it attachedengraved. And in three volumes. There is a postscript in front of it. 
-Xiruiyan Yuangong. ExtractYong Ping Guang recorded in one volume. For the postscript. Eleven in a hundred thousand.
-This is also the eleventh of Tiantong. It must be widely recorded. Just wishHou Xian diligently collected it. 
-Now the second division is attached to this volume. After the factA good number is also collected. 
-There is no shortage of good things. Tianbi tin type. ZezhenIt's so eye-catching to be attached.
