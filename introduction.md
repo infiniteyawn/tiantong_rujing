@@ -27,11 +27,11 @@ DongShan ZM [洞山良价]
 
 Linji, you may know.
 
-RuJing (淨公 throughout) 
+TianTong RuJing (淨公 throughout) 
 
 #Places referenced:
 
-TianTong (mountain, temple)
+DongShan - cave mountain
 
 Lingyin (temple, hangzhou?) = https://zh.wikipedia.org/wiki/%E7%81%B5%E9%9A%90%E5%AF%BA
 
@@ -64,6 +64,7 @@ xxSeeking horses in Tang Si and rabbits in dead plants.
 璨無文之無文印 第五卷 天地雪屋韶 禪師 塔銘序中 云。
 
 TsanWuWen's WuWenYin Volume 5 TianDi XueWuShao ZenMaster TaMing XuZhong speaks.
+(Seems like the following discusses some of the wuwenyin, the poem is from there)
 
 
 嘉定 間 淨禪師。倡足菴之道于[天童]。
@@ -215,7 +216,7 @@ one is tiantong jump? non standard character, great leap?
 
 蹈翻東海龍魚驚。乃此二卷錄也。延寶八年庚申之秋。(予)在東武王子峯。挍讎鏤梓至今三十五年。
 
-Dancing over the East China Sea dragon fish surprised.
+leaping over the East China Sea causing great waves to astonish fish and dragons (dogen 105)
 
 This is also recorded in the second volume.
 
@@ -234,16 +235,15 @@ And occasionally I saw the secret in the Deyun Chamber of Danzhou.
 A volume of [Tiantong] Rujing Zen Master's Quotations compiled by the Fanqing monk's Zhenbi Ruiyan Yuangong.
 
 
-但是[天童]上堂法語二十則而已矣。於其卷末。高祖元和尚。記!淨公法嗣六人機緣!淨公略傳了云。
+但是[天童]上堂法語二十則而已矣。於其卷末。高祖元和尚。記淨公法嗣六人機緣淨公略傳了云。
 
-But [Tiantong] in the seat spoke 20...
+But [Tiantong] spoke only twenty sayings in the main hall
 
 At the end of this volume.
 
 Monk Gao Zuyuan.
 
-Remember [Jing Gong] Fa Si Six People's Chance [Jing Gong] Briefly spoke
-
+Remember that Jing passed down dhamma to six others (?)
 
 日本仁治二年歲。次辛丑二月中旬。瑞巖遠公遙送此錄付吾。蓋仁治二年者。廣宗募刻後十三年也。
 
@@ -260,7 +260,7 @@ Thirteen years after Guangzong’s engraving
 
 而其六會中之[天童]錄者。祖日侍者所編。而其編中遺落二十則瑞巖搜出編集。寄元和尚者分明也。
 
-And the [Tiantong] recorded in the six sessions.
+And Tiantong recorded in the six sessions.
 
 Edited by the ancestors.
 
