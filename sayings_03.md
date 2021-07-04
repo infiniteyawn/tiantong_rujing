@@ -12,7 +12,7 @@ Three realms, there's no technique for it. How can you go looking for where your
 
 (bowing) 
 
-Precipitous.
+"Precipitous."
 
 ==================================================================
 Translator's notes.
