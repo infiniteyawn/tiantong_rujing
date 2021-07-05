@@ -12,9 +12,9 @@ Experience experience, and in all respects [!]
 
 A torrent does not catch the rain in pursuing the marching clouds.
 
-When all is said and done, begin an insignificant life (?)
+When all is said and done, how is it?
 
-The saintly man has no (thought of) self, there is no location not already complete.
+The sage has no (thought of) self, there is no location not already complete.
 
 .
 
@@ -41,23 +41,26 @@ And on the peak of tiantai mountain, the pitter-patter of rain seeps down.
 
 [0134a28] 上堂云。
 
-靈靈而時時。
- - Alert, quick, and at all times [!]
+ 靈靈而時時。
+ - Alert, spirit, and at all times [!]
+ - 靈靈 spirit, might be onomatopeaic for dripping...
+ - 時時 is modern occasionally/often
 
 昧不得月隨流水。
  - dark/obscure not get the moon follow flowing water
- - the dark cannot follow like the moon in flowing water 
-
+ - the dark and obscured does not catch the moon following flowing water 
 
 歷歷而處處。
- - experience passing trough, and in all respects / room to dwell in
+ - witness experience, and reside in residing.
 
 混不得雨逐行雲。
   - drifting along, not get rain go chase clounds 
   flow not get rain pursue walking clouds
+  The torrent does not catch rain pursuing the marching clouds
 
-畢竟作麼生。
- - when all is said and done, create/begin insignificant life (/birth?)
+ 畢竟作麼生。
+ - when all is said and done, how is it? (what is its life)
+ - [http://buddhaspace.org/dict/fk/data/%25E4%25BD%259C%25E9%25BA%25BC%25E7%2594%259F.html]
 
 聖人無己勿所不已。
  - if a sage is without self, don't do anything
@@ -73,8 +76,8 @@ https://buddhall102.pixnet.net/blog/post/271043534-%E7%9F%B3%E9%A0%AD%E5%B8%8C%E
  - (speaking eternally) All over the ten directions is mind
 
 不在一切處。
- - not-present (also colloq: deceased, gone out) everything resides 
  - Not at location of one cut
+ - not at everywhere locate/reside
 
 還會麼。
 return assembly?
