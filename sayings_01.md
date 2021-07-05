@@ -1,16 +1,18 @@
 [0134a28] (上堂云)。
-Version 1:
+Version 2:
 
 .
 
 
-Alert & quick, and at all times [!] 
+spirit-spirit, and moment-moment
 
 The dark does not catch the moon following the flowing river.
 
-Experience experience, and in all respects [!]
+Experience-experience, and residing-residing
 
-A torrent does not catch the rain in pursuing the marching clouds.
+The torrent does not catch the rain pursuing the marching clouds.
+
+.
 
 When all is said and done, how is it?
 
@@ -21,24 +23,58 @@ The sage has no (thought of) self, there is no location not already complete.
 
 (speaking for eternity:) 
 
-All over the ten directions is mind
+All over the ten directions is mind,
 
-Not at one cut's location.
+Not residing everywhere.
 
 
-. And as for the audience?
+And as for the audience?
 
 
 [Meanwhile:]
 
-The head of the NanYue (Mt. Heng) Mountain range slices up the clouds,
+The the NanYue Mountain range's head slices and separates the clouds,
 
 And on the peak of tiantai mountain, the pitter-patter of rain seeps down.
 
 
 
-==========================================================================
+========================================================================== Translator's notes
 
+A rainy day in the tiantong mountains. 
+
+Jing uses a lot of double-repetition of characters, which gives me the feeling of dripping rain viz from the last lines.
+
+the first and third lines "spirit spirit & moment moment", "witness witness & reside reside" are a mystery to me.
+
+Just know that verbs, nouns, plurals, adverbs are all mu in chinese - you could just as easily say divine spirit or witnessing experience.
+
+We also have that interspersed by the moon on flowing water, and the torrent not chasing the rain clouds.
+
+It seems the lines could also run on, although it's not as poetic to say:
+
+"The spirit is divine and often obscured it doesn't obtain the moon that follows the flowing water"
+
+.
+
+Ignore the sages and the mind section, that's pretty dull zen fodder, because we have more double-repetition for the summary in the meantime:
+
+(lit)
+
+Nanyue-summit cloud-head divide-divide (or slice-slice)
+
+Tiantai-peak falling-rain drip-drip (modern seep-seep)
+
+To me (and perhaps because these last sentences were so easy to translate) this is the most relatable part and a perfect summary.
+
+The struggles of spirit, mind, time and residing. Meanwhile, mountain-mountain cloud-cloud drip-drip river-river.
+
+It seems like Jing was a true man of the rainy chinese mountains. Not one for longevity though, as he rejoined the mountain soil in 1228 a year after dogen went back to Japan. He's buried there in tiantong (which is roughly where he was born) and it still rains on him a lot to this day as apparently his grave is still up there.
+
+
+
+
+=========================================================================Shame Section
 [0134a28] 上堂云。
 
  靈靈而時時。
@@ -84,7 +120,7 @@ return assembly?
 
 南岳嶺頭雲片片。
 
-The head peak of the NanYue (Mt. Heng) Mountain range slices up the clouds (one of five sacred mountains)
+The summit of the NanYue (Mt. Heng) Mountain range slices up the clouds (one of five sacred mountains)
 
 天台峯下雨漓漓。
 
