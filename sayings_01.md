@@ -6,17 +6,17 @@ Version 2:
 
 spirit-spirit, and moment-moment
 
-The dark does not catch the moon following the flowing river.
+The dark does not catch the moon that follows the flowing river.
 
 Experience-experience, and residing-residing
 
-The torrent does not catch the rain pursuing the marching clouds.
+The torrent does not catch the rain by pursuing the marching clouds.
 
 .
 
 When all is said and done, how is it?
 
-The sage has no (thought of) self, there is no location not already complete.
+The sage has no (thought of) self, there is nowhere not already complete.
 
 .
 
@@ -25,7 +25,7 @@ The sage has no (thought of) self, there is no location not already complete.
 
 All over the ten directions is mind,
 
-Not residing everywhere.
+Not-residing everywhere.
 
 
 And as for the audience?
@@ -33,9 +33,9 @@ And as for the audience?
 
 [Meanwhile:]
 
-The the NanYue Mountain range's head slices and separates the clouds,
+The NanYue Mountain range's head separates-divides the clouds,
 
-And on the peak of tiantai mountain, the pitter-patter of rain seeps down.
+From the peak of tiantai mountain, the pitter-patter of rain seeps down.
 
 
 
@@ -61,15 +61,22 @@ Ignore the sages and the mind section, that's pretty dull zen fodder, because we
 
 (lit)
 
-Nanyue-summit cloud-head divide-divide (or slice-slice)
+Nanyue-summit-head cloud divide-divide (or slice-slice)
 
-Tiantai-peak falling-rain drip-drip (modern seep-seep)
+Tiantai-peak-below rain drip-drip (modern seep-seep)
 
-To me (and perhaps because these last sentences were so easy to translate) this is the most relatable part and a perfect summary.
+(or)
+
+Nanyue-summit top-cloud divide-divide
+
+Tiantai-peak falling-rain drip-drip 
+
+
+To me (and perhaps because these last sentences were simple and descriptive) this is the most relatable part and a perfect summary.
 
 The struggles of spirit, mind, time and residing. Meanwhile, mountain-mountain cloud-cloud drip-drip river-river.
 
-It seems like Jing was a true man of the rainy chinese mountains. Not one for longevity though, as he rejoined the mountain soil in 1228 a year after dogen went back to Japan. He's buried there in tiantong (which is roughly where he was born) and it still rains on him a lot to this day as apparently his grave is still up there.
+It seems like Jing was a true man of the rainy Chinese mountains. Not one for longevity though, as he rejoined the mountain soil in 1228 a year after dogen went back to Japan. He's buried there in tiantong (which is roughly where he was born) and it still rains on him a lot to this day as apparently his grave is still up there.
 
 
 
