@@ -48,6 +48,7 @@ A thousand forms, ten thousand appearances cannot exhaust it entirely.
 near world honoured one, the night? is one-of-a-kind. 
 Ordinary experience of the four elements is a precious temple
 Lonely-cloud fields the crane goes to live unobstructed.
+in all cases thereupon see how.
 
 
 故勇猛精進者得之。猶入暗室遇大光明見種種色。退縮未諭者畏之。如子弟之對嚴父師。殊
