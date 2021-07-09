@@ -5,11 +5,38 @@
 資料底本: 大正新脩大正藏經 Vol. 48, No. 2002A
 No. 2002A
 如淨禪師語錄序
-　　五家宗派中。曹洞則機關不露。臨濟則棒喝分明。苟得其由。門戶易入。雖取捨
-少異作用弗同。要之殊塗一致耳。惟天童淨禪師不流不倚兼而有之。自成一家八面受
-敵。始以竹篦子久知痛癢。後因一滴水漸至澎衝。斷塹懸崖斬釘截鐵。所謂用法得法
-外意。得魚忘筌。得兔忘蹄者也。觀其登寶華座。若猛虎踞。擊大灋鼓作獅子吼。直
-使人天讚仰魔鬼歸降。至於一偈一頌一話一言。呼風吐雲轟雷掣電。千態萬貌不可窮
+
+Zen master rujing continued sayings
+
+五家宗派中。曹洞則機關不露。
+in the five sects, the caodong method is not betrayed. ?
+
+
+  臨濟則棒喝分明。苟得其由。門戶易入。雖取捨少異作用弗同。
+  
+  Linji practice of striking monks is evidently negligent. It is easy to enter the gate. although, to accept or reject a few different acts is not the same.
+  
+  要之殊塗一致耳。惟天童淨禪師不流不倚兼而有之。自成一家八面受敵。
+  
+  In brief, it's different mud but it's all the same, and that's that.
+  Only tiantong's zen master rujing doesn't disseminate or rely on both at the same time. 
+  To have one's own style, is to receive all 8 sides 
+  
+  始以竹篦子久知痛癢。後因一滴水漸至澎衝。斷塹懸崖斬釘截鐵。所謂用法得法外意。
+  
+  at the start using a double-edged fine-tooth comb a long time knowledge of suffering ?
+  behind cause, a water drop gradually becomes the sound of crashing waves
+  giving up / chopping off 'moat' a hanging cliff stands resolute?
+  so called usage dama to attain dhama outside ideation.
+  
+  
+  得魚忘筌。得兔忘蹄者也。
+  To catch a fish and forget the trap: taking help for granted. This is to catch a rabbit and forget hooves.
+  
+  觀其登寶華座。若猛虎踞。擊大灋鼓作獅子吼。直
+  To observe it ascend a precious flower seat. 
+  
+使人天讚仰魔鬼歸降。至於一偈一頌一話一言。呼風吐雲轟雷掣電。千態萬貌不可窮\
 盡。近世尊宿絕無僅有者。凡歷四大寶剎。孤雲野鶴去住自如。皆於是見焉。故勇猛
 精進者得之。猶入暗室遇大光明見種種色。退縮未諭者畏之。如子弟之對嚴父師。殊
 不知藥瞑眩而厥疾。瘳終有益矣。師之得力處。出生入死處。固難以形迹求作實法會
