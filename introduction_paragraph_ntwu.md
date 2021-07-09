@@ -33,12 +33,24 @@ in the five sects, the caodong method is not betrayed. ?
   得魚忘筌。得兔忘蹄者也。
   To catch a fish and forget the trap: taking help for granted. This is to catch a rabbit and forget hooves.
   
-  觀其登寶華座。若猛虎踞。擊大灋鼓作獅子吼。直
-  To observe it ascend a precious flower seat. 
+  觀其登寶華座。若猛虎踞。擊大灋鼓作獅子吼。
+  To observe it ascend a precious flower seat.
+  Like a fierce tiger crouching. To strike the big dhamma drum is to make a lion's roar
   
-使人天讚仰魔鬼歸降。至於一偈一頌一話一言。呼風吐雲轟雷掣電。千態萬貌不可窮\
-盡。近世尊宿絕無僅有者。凡歷四大寶剎。孤雲野鶴去住自如。皆於是見焉。故勇猛
-精進者得之。猶入暗室遇大光明見種種色。退縮未諭者畏之。如子弟之對嚴父師。殊
+直使人天讚仰魔鬼歸降。
+straight and reasonable cause people heaven to praise and admire the devil, together descend.
+
+至於一偈一頌一話一言。呼風吐雲轟雷掣電。千態萬貌不可窮盡。
+To go so far as one gatha, one praise, one talk one word. shout wind, spit clouds, explode thunder and flash lightning.
+A thousand forms, ten thousand appearances cannot exhaust it entirely.
+
+近世尊宿絕無僅有者。凡歷四大寶剎。孤雲野鶴去住自如。皆於是見焉。
+near world honoured one, the night? is one-of-a-kind. 
+Ordinary experience of the four elements is a precious temple
+Lonely-cloud fields the crane goes to live unobstructed.
+
+
+故勇猛精進者得之。猶入暗室遇大光明見種種色。退縮未諭者畏之。如子弟之對嚴父師。殊
 不知藥瞑眩而厥疾。瘳終有益矣。師之得力處。出生入死處。固難以形迹求作實法會
 。然觀水必觀瀾。涉大海從津涯。故舍其言。無以求其奧也。宗上人以師之法語。俾
 予序其篇首。予則安能。蓋予與師。為鄉國人。為道誼友。且心眼相照。不可無數語
